@@ -1,0 +1,1 @@
+Bangala optical character recognition
